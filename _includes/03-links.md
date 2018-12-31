@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[fencingpost](http://stores.thefencingpost.com/coaching-gear-1/)
